@@ -57,3 +57,11 @@ Feel free to connect on  https://www.linkedin.com/in/mahammad-razi-6324b5244/
 ---
 
 ⭐ If you like this project, feel free to star this repo and follow for more!
+
+![Screenshot 2025-05-24 043414](https://github.com/user-attachments/assets/dd939f6f-6417-4627-b2a5-8f711f052c5f)
+
+
+![Screenshot 2025-05-24 045437](https://github.com/user-attachments/assets/30ce701f-d9d9-4633-89a7-451310d91337)
+
+
+
