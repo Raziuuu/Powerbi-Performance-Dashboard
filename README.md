@@ -56,12 +56,15 @@ Feel free to connect on  https://www.linkedin.com/in/mahammad-razi-6324b5244/
 
 ---
 
-⭐ If you like this project, feel free to star this repo and follow for more!
-
 ![Screenshot 2025-05-24 043414](https://github.com/user-attachments/assets/dd939f6f-6417-4627-b2a5-8f711f052c5f)
-
-
 ![Screenshot 2025-05-24 045437](https://github.com/user-attachments/assets/30ce701f-d9d9-4633-89a7-451310d91337)
+![Screenshot 2025-05-24 045515](https://github.com/user-attachments/assets/5ac920aa-b626-4707-ad58-fe9bf5d3532a)
+![Screenshot 2025-05-24 045556](https://github.com/user-attachments/assets/86828f8f-861f-4432-bd86-947a70b39f38)
+![Screenshot 2025-05-24 045650](https://github.com/user-attachments/assets/cea767a6-890e-4263-b843-64104f3cbd78)
+![Screenshot 2025-05-24 045728](https://github.com/user-attachments/assets/c7a5dba6-20bf-49ac-a46d-97613c487b08)
+![Screenshot 2025-05-24 045917](https://github.com/user-attachments/assets/a612ef0f-d35e-4e87-b0b6-33581992f81f)
+![Screenshot 2025-05-24 045802](https://github.com/user-attachments/assets/17b1cc44-3b81-4c1c-b62d-c053d9dde50c)
 
+---
 
-
+⭐ If you like this project, feel free to star this repo and follow for more!
